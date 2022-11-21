@@ -8,4 +8,4 @@ Through CodeClan I’ve gained not only knowledge but a thirst for more. I'm loo
 
 The two things I love about coding are the problem solving aspects and the culture of collaboration.
 
-Have a look at my projects below, and for more info get me on linkedin.com/DuncanG33
+Have a look at my projects below, and for more info get me on [LinkedIn](linkedin.com/DuncanG33).  
