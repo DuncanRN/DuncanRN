@@ -1,6 +1,6 @@
 Junior Software Developer with 5 years experience in the music industry, and 8 years in tech.
 
-My depth of knowledge is demonstrated by my computing degree and industry experience.
+My depth of knowledge is evidenced by my computing degree and industry experience.
 
 In addition my studies at CodeClan have equipped me with the ability to learn new skill sets quickly and efficiently.
 
