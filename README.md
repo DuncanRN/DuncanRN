@@ -1,4 +1,4 @@
-* Junior Software Developer with 5 years experience in the music industry, and 8 years in tech.
+* Software Developer with 5 years experience in the music industry, and 8 years in tech.
 * My depth of knowledge is evidenced by my computing degree and industry experience.
 * Additionally my studies at CodeClan have equipped me with the ability to learn new skill sets quickly and efficiently.
 * Through CodeClan I’ve gained not only knowledge but a thirst for more. I'm looking forward to a Full Stack or Back End Developer role.
